@@ -3,7 +3,7 @@ I’m interested in exploring opportunities that are available in Computer Scien
 I’m currently learning Computer Networks and a couple of business classes✨.<br/>
 😄 Pronouns: She/her
 
-⚡ Fun fact: I love dancing, on 👀Bollywood songs especially!
+⚡ Fun fact: I love dancing, on Bollywood songs especially!
 
 Check out my [LinkedIn](https://www.linkedin.com/in/simranprajapati1267/) 
 <!---
