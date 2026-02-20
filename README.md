@@ -1,5 +1,5 @@
 👋 Hi, I’m Simran. Currently a junior in Cybersecurity, minoring in Computer Science at Wentworth Institute of Technology. <br/>
-I’m interested in exploring opportunities that are available in Computer Science 💞️. <br/> 
+I’m interested in exploring opportunities that are available in Cybersecurity💞️. <br/> 
 I’m currently learning Computer Networks and a couple of business classes✨.<br/>
 😄 Pronouns: She/her
 
